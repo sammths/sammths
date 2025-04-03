@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sammths
+- 👋 Hi, I’m @SAM
 - 👀 I’m interested in nothing.
 - 🌱 I’m currently learning something
 - 💞️ I’m looking to collaborate on everything
